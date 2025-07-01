@@ -6,4 +6,4 @@ i a
 i e
 i a
 i make revival
-my discord is lolgy222.php
+my discord is lolgy222_
