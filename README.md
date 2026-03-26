@@ -9,10 +9,8 @@
  ecuadorian
 
  fw: dradd, projectorrr, lukao003 
+
  
-               **
-
-
                
 ``                              
 ``
