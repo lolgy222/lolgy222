@@ -2,7 +2,6 @@
 
 
 
-  **
  autistic idiot
  
  imbecile coder
